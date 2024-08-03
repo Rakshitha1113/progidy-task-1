@@ -1,1 +1,0 @@
-# progidy-task-1
